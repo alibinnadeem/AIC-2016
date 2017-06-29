@@ -1,0 +1,2 @@
+# AIC-2016
+his special issue of Abasyn Journal of Social Sciences is commemorating the prestigious 2nd ASIA-UTM international research conference held at University Technology Malaysia on 9th &amp; 10th December, 2016 at Kuala Lumpur where eminent research scholars, academicians and practitioners from all the over the world presented their research work. The research articles contained in this special issue have been carefully selected after each article underwent double-blind review proceedings. 
